@@ -1,1 +1,0 @@
-# eskulfinder_smanela
